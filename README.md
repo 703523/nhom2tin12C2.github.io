@@ -1,1 +1,0 @@
-# nhom2tin12C2.github.io
